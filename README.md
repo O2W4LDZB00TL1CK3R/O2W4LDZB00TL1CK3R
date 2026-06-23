@@ -9,7 +9,7 @@
   
 <br> <img width="500" height="129" alt="tumblr_34e6fe91480b156a2917bf0cd6f6d339_beae68ce_500" src="https://github.com/user-attachments/assets/ac9cc1db-d676-46a2-9757-2bf97110159d" />
 
-<br><img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/7f16a00c-d7c7-4877-b13c-d7001491aeba" /> HAII!!! Call me Z or Zynth unless to call me by my user 
+<br><img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/7f16a00c-d7c7-4877-b13c-d7001491aeba" /> HAII!!! Call me Z or Zynth unless you prefer to call me by my user 
   <img width="20" height="20" alt="blue2" src="https://github.com/user-attachments/assets/7f16a00c-d7c7-4877-b13c-d7001491aeba" /> 
 
 <br><img width="20" height="20" alt="blue9" src="https://github.com/user-attachments/assets/6d3d0819-cb6d-4a37-80d4-985d4f1e5cde" /> I DON't BITE!!! C+H IS HEAVILY ENCOURAGED, IM A BIG CUDDLER <3
